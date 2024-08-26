@@ -1,5 +1,4 @@
 
-![](https://media.licdn.com/dms/image/D4E0BAQGeByckaWAe0g/company-logo_200_200/0/1719917178627?e=2147483647&v=beta&t=CmQzbQqcRr-Iw-Vnuuv3VOQToQackL50UyWkfeWugJQ)pg)
 
 ꧁༺✨ Product name: [Glucovate Glycogen Support Australia](https://welnessnutra.com/glucovate-glycogen-support-australia-order/)
 
